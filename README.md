@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ... start ups and future industries
 - 📫 How to reach me ... m.sivaraj9791@gnail.com
 - 😄 Pronouns: ...  he/him
-- ⚡ Fun fact: ... no limits to fun leads life fabulous
+- ⚡ Fun fact: ... no limits to fun because fun leads life fabulous
 
 <!---
 m-sivaraj-teamquantum/m-sivaraj-teamquantum is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
